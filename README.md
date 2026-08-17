@@ -1,5 +1,7 @@
 # 💫 About Me:
-## Hi there 👋<br><br><!--<br>**Jack-Jamie/Jack-Jamie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.<br><br>I'm a Healthcare Operations Specialist blending BPO expertise with a passion for healthcare quality. I partner closely with providers to optimize revenue efficiency, ensure uncompromising HIPAA compliance, and streamline administrative processes so healthcare teams can deliver exceptional patient care.<br><br><br>### 📬 Connect with Me<br>[![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=flat&logo=linkedin&logoColor=white)](https://linkedin.com/in/yourprofile))<br>- 📲 +63905-377-7415<br>📧 Email : luvbugmushi@gmail.com<br>- ⚡ Fun fact :  I love cats and watching anime 😆
+## Hi there 👋 I'm Jamie 😊
+
+I'm a Healthcare Operations Specialist blending BPO expertise with a passion for healthcare quality. I partner closely with providers to optimize revenue efficiency, ensure uncompromising HIPAA compliance, and streamline administrative processes so healthcare teams can deliver exceptional patient care.<br><br><br>### 📬 Connect with Me<br>[![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=flat&logo=linkedin&logoColor=white)](https://linkedin.com/in/yourprofile))<br>- 📲 +63905-377-7415<br>📧 Email : luvbugmushi@gmail.com<br>- ⚡ Fun fact :  I love cats and watching anime 😆
 
 
 ## 🌐 Socials:
