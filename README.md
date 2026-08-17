@@ -1,5 +1,11 @@
 <img width="450" height="270" alt="Image" src="https://github.com/user-attachments/assets/51c2b581-a33f-4d1c-bc39-46106a4faaac" />
+
+
  
+
+
+
+
  
  💫 About Me:<br><br>
  Hi there 👋 I'm Jamie 😊<br><br>
