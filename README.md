@@ -1,5 +1,10 @@
 <img width="450" height="270" alt="Image" src="https://github.com/user-attachments/assets/51c2b581-a33f-4d1c-bc39-46106a4faaac" />
 
+                                                   
+
+<div data-importer="profile-views" align="right">
+  <img data-importer="profile-views" src="https://count.getloli.com/@:Jack-Jamie?theme=miku&padding=2&offset=0&scale=1&align=top&pixelated=1&darkmode=auto"  />
+</div>
 
  
 
@@ -30,5 +35,10 @@
 
 ---
 [![](https://komarev.com/ghpvc/?username=Jack-Jamie&icon=0&color=0)](https://visitcount.itsvg.in)
+
+
+
+                                        
+
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
