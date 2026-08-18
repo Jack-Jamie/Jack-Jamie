@@ -5,7 +5,6 @@
 <div data-importer="profile-views" align="right">
   <img data-importer="profile-views" src="https://count.getloli.com/@:Jack-Jamie?theme=miku&padding=2&offset=0&scale=1&align=top&pixelated=1&darkmode=auto"  />
 </div>
-
  
 
 
