@@ -13,7 +13,7 @@
  
 ## 💫 About Me:<br><br>
  Hi there 👋 I'm Jamie 😊<br><br>
- I'm a Healthcare Operations Specialist blending BPO expertise with a passion for healthcare quality. I partner closely with providers to optimize revenue efficiency, ensure uncompromising HIPAA compliance, and streamline administrative processes so healthcare teams can deliver exceptional patient care.
+ I'm a Healthcare Operations Specialist blending BPO expertise with a passion for healthcare quality. I partner closely with providers to optimize revenue efficiency, ensure uncompromising HIPAA compliance, and streamline administrative processes so healthcare teams can deliver exceptional patient care. Being in Customer service is one of my expertise and I am always excited to share and learn new skills. 
  <br><br><br><br><br>
  📬 Connect with Me<br>[![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=flat&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/jackielou-jamie-hernandez-i/?trk=public-profile)<br><br>📲 +63905-377-7415<br>📧 Email : luvbugmushi@gmail.com<br><br>⚡ 
  Fun fact :  I love cats and watching anime 😆
